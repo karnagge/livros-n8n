@@ -1,79 +1,129 @@
 # A Humilhação no Salão dos Titânicos
 
-O Salão dos Titânicos evocava uma grandiosidade que fazia qualquer mortal se sentir minúsculo. Colunas de mármore negro erguiam-se como sentinelas silenciosas até o teto abobadado, onde constelações mágicas dançavam em uma coreografia perpétua. A luz que emanava dos cristais flutuantes tinha a propriedade peculiar de realçar cada imperfeição, cada gesto hesitante — uma crueldade arquitetônica que servia perfeitamente aos propósitos da aristocracia mágica.
+O Salão dos Titânicos emanava uma aura ancestral através de suas colunas de mármore negro venado, que se erguiam como sentinelas silenciosas até o teto abobadado. Cristais de quartzo fosco, incrustados em padrões geométricos precisos nas paredes, pulsavam com uma luz tênue e esverdeada, lançando sombras dançantes que pareciam conspirar nos cantos do salão.
 
-Alan ajustava nervosamente a gola de sua veste de segunda mão, um tom mais escuro nos cotovelos denunciava o tecido desgastado. Seus dedos, ainda marcados pela tinta dos grimórios que estudara na noite anterior, tamborilavam inquietos contra sua perna.
+Yuu atravessou o portal arqueado com passos hesitantes, seus dedos nervosos ajustando inconscientemente a gola alta de seu uniforme escolar. O tecido sintético, normalmente confortável, agora parecia arranhar sua pele como se estivesse impregnado com estática. O eco de suas passadas reverberava pelo espaço vasto, cada som amplificado pela acústica perfeita do ambiente, transformando sua chegada em um anúncio involuntário.
 
-— Mantenha a postura, garoto — sussurrou Mestre Blackwood, seu mentor, com aquele tom que misturava preocupação e advertência. — Eles farejam insegurança como lobos farejam medo.
+Os Titânicos já estavam dispostos em seu semicírculo habitual, suas silhuetas imponentes recortadas contra a luz difusa dos cristais. Seus mantos cerimoniais, em tons de azul profundo e prata, ondulavam subtilmente com a brisa que circulava pelos dutos de ventilação antigos, criando a ilusão de que eram feitos de sombras líquidas.
 
-O Grande Conselho dos Arcanos ocupava uma mesa semicircular elevada, seus treze assentos esculpidos em madeira antiga e decorados com runas cintilantes. Cada Arcano portava um medalhão diferente, símbolos de poder que Alan havia memorizado em suas longas noites de estudo. A Arquimaga Ravenna, com seus cachos prateados e olhos que pareciam conter galáxias, presidia a sessão com uma expressão que oscilava entre tédio e desdém.
+— Aproxime-se, Candidato 2749 — a voz do Arcano-Mestre ecoou, metálica e precisa como o mecanismo de um relógio ancestral.
 
-— Apresente sua tese, Aprendiz Lancaster — sua voz ecoou pelo salão como cristal tilintando.
+Yuu avançou, sentindo o peso de cada olhar. O chão de obsidiana polida refletia sua imagem distorcida, como se estivesse caminhando sobre um espelho d'água negra. Suas mãos tremiam levemente, e ele as mantinha cerradas em punhos para disfarçar.
 
-Alan deu um passo à frente, sua sombra projetada no chão parecendo curiosamente menor do que deveria.
+— Apresente sua Teoria da Ressonância Harmônica aplicada aos Campos de Contenção Quântica — ordenou uma Titânica à direita, seus olhos brilhando com um tom de âmbar artificial por trás da máscara ceremonial.
 
-— Honoráveis membros do Conselho, minha pesquisa sugere que a magia primordial não é limitada por linhagem sanguínea, mas sim pela ressonância harmônica entre...
+Yuu respirou fundo, seu coração martelando contra as costelas. Abriu a boca para começar sua apresentação, mas as palavras se recusaram a sair. Todo o conhecimento meticulosamente memorizado nas últimas semanas parecia ter evaporado de sua mente, deixando apenas um vazio vertiginoso.
 
-— Absurdo! — A interrupção veio do Arcano Thaddeus, seu medalhão de bronze reluzindo ameaçadoramente. — Sugere que qualquer plebeu poderia canalizar as forças arcanas? Que não há distinção entre as antigas famílias e... o comum?
+— Eu... — sua voz falhou, quebrando o silêncio como uma nota dissonante.
 
-O murmúrio de desaprovação cresceu como uma onda, e Alan sentiu cada sílaba do deboche coletivo como agulhas em sua pele. Suas mãos tremiam levemente enquanto segurava suas anotações, o suor ameaçando borrar a tinta meticulosamente aplicada.
+— Fascinante — zombou outro Titânico, sua voz destilando sarcasmo. — Aparentemente, enviaram-nos um candidato que não consegue sequer articular o básico da teoria fundamental.
 
-— Tenho evidências experimentais — Alan tentou continuar, sua voz falhando minimamente. — Os padrões de ressonância que documentei...
+O suor começou a escorrer pela nuca de Yuu, gelado como mercúrio. Os cristais nas paredes pareceram pulsar mais intensamente, como se respondessem à sua angústia crescente. Ele podia sentir o peso da decepção no ar, denso como névoa tóxica.
 
-— Evidências? — Ravenna inclinou-se para frente, seus olhos cósmicos fixos em Alan. — Mostre-nos então, jovem Lancaster. Uma demonstração prática de sua... teoria.
+— Talvez — interveio uma terceira voz, esta carregada de uma crueldade refinada — devêssemos reclassificá-lo para as funções de manutenção básica. A seção de limpeza dos dutos de resíduos sempre precisa de mais... voluntários.
 
-O coração de Alan acelerou. Demonstrações práticas não estavam previstas no protocolo. Ele não estava preparado, não ali, não agora. Mas recusar seria admitir derrota.
+Uma risada contida percorreu o semicírculo, como vento através de folhas secas. Yuu sentiu suas bochechas queimarem, o rubor se espalhando até a ponta de suas orelhas. O uniforme agora parecia sufocá-lo, cada fibra sintética conspirando para tornar o ar mais rarefeito.
 
-— Eu... — ele começou, erguendo as mãos em posição de conjuração.
+— Candidato 2749 — o Arcano-Mestre pronunciou cada sílaba como se fossem pedras sendo depositadas em uma urna funerária —, você está dispensado. Sua... performance será devidamente registrada.
 
-O primeiro glifo se formou no ar, trêmulo como uma vela ao vento. O segundo veio em seguida, mais instável que o primeiro. No terceiro, algo deu errado. A ressonância desalinhou, os símbolos colapsaram, e uma onda de energia descontrolada reverberou pelo salão, fazendo os cristais flutuantes tilintarem em uma cacofonia aguda.
+Yuu recuou, seus pés movendo-se automaticamente sobre o piso espelhado. As sombras pareciam alongar-se, alcançando-o como dedos acusadores. O eco de seus passos agora soava como uma marcha fúnebre para suas ambições destroçadas.
 
-Risadas aristocráticas preencheram o ambiente. Não gargalhadas vulgares, mas aquele tipo de riso contido e cruel, o tipo que corta mais fundo que qualquer lâmina.
+Enquanto se retirava, o murmúrio dos Titânicos o seguia como uma nuvem de insetos zumbindo, suas palavras cortantes penetrando sua consciência: — Mais um que pensou poder transcender sua posição natural na ordem das coisas.
 
-— Como esperado — Ravenna suspirou, quase entediada. — Sangue comum, resultados comuns. O Conselho agradece sua... contribuição à academia, Aprendiz Lancaster. Está dispensado.
+A porta do Salão dos Titânicos se fechou atrás dele com um clique suave, mas para Yuu, soou como o selo final em seu fracasso. No corredor vazio, os cristais de luz continuavam sua dança indiferente, testemunhas silenciosas de mais um sonho despedaçado nas engrenagens da hierarquia.
 
-Mestre Blackwood deu um passo à frente, como se para defender seu pupilo, mas Alan o deteve com um gesto sutil. Caminhando em direção à saída, manteve a cabeça erguida, mesmo quando ouviu Thaddeus comentar audivelmente:
+# O Encontro com Eldora e a Jornada ao Templo
 
-— Típico de sua linhagem, Blackwood, acreditar que pode transformar carvão em diamante.
+As ruas do Distrito 7 pareciam mais estreitas sob o manto da noite artificial, os neons das lojas de componentes tech piscando como estrelas febris através da neblina perpétua. Yuu caminhava cabisbaixo, seus passos ecoando contra o metal do pavimento, cada batida reverberando como o eco distante de sua humilhação no Salão dos Titânicos.
 
-Na saída do salão, enquanto as portas monumentais se fechavam atrás de si, Alan percebeu que suas mãos haviam parado de tremer. Em seu lugar, um núcleo de determinação fria começava a se cristalizar. Eles queriam evidências? Ele lhes daria evidências. Não hoje, não amanhã, mas um dia — e esse dia seria inesquecível.
+Foi quando a viu. Uma figura esguia emergiu da névoa como uma aparição, seus cabelos prateados refletindo as luzes multicoloridas dos hologramas publicitários. Eldora. A velha guardiã do Templo dos Algoritmos Ancestrais tinha olhos que pareciam conter galáxias digitais.
+
+— Às vezes — sua voz soou como código antigo sendo executado —, precisamos falhar espetacularmente para encontrar nosso verdadeiro caminho.
+
+Yuu estancou, suas mãos ainda tremendo da experiência anterior.
+
+— Como você...?
+
+— Os cristais sussurram, jovem buscador — Eldora respondeu, um sorriso enigmático brincando em seus lábios enrugados. — E eles me contaram sobre sua performance... interessante... diante dos Titânicos.
+
+O rubor voltou às faces de Yuu, mas havia algo no tom dela que não carregava o mesmo veneno das risadas do Salão.
+
+— Venha comigo — ela gesticulou com dedos cobertos por anéis de circuitos integrados. — Há outro caminho para aqueles que ousam questionar a ordem estabelecida.
+
+O templo se erguia como uma anomalia arquitetônica em meio aos arranha-céus corporativos - uma estrutura antiga de metal e pedra, suas paredes cobertas por linhas de código tão antigas que pareciam hieróglifos digitais. Eldora conduziu Yuu através de corredores sinuosos, onde hologramas dançavam como fantasmas binários.
+
+— Os Titânicos — ela falou enquanto caminhavam — se esqueceram que a verdadeira força da tecnologia não está no controle, mas na harmonia.
+
+Pararam diante de uma porta circular que se abriu com um suspiro pneumático, revelando uma câmara circular repleta de terminais antigos e cristais pulsantes.
+
+— Isso é...
+
+— A Câmara da Compilação Primordial — Eldora completou. — Aqui, os primeiros códigos foram escritos, antes mesmo dos Titânicos assumirem o controle.
+
+Yuu observou maravilhado os símbolos que flutuavam no ar, dançando como constelações digitais.
+
+— Por que está me mostrando isso?
+
+— Porque — Eldora tocou um dos cristais, fazendo-o vibrar com uma frequência que ressoou através do corpo de Yuu — você não fracassou hoje. Você apenas descobriu que pertence a uma linhagem mais antiga de tecnomantes.
+
+Os olhos de Yuu se arregalaram quando um holograma particular se materializou diante dele - era a mesma equação que o havia paralisado no Salão dos Titânicos, mas vista por um ângulo completamente diferente.
+
+— Os Campos de Contenção Quântica — Eldora explicou, seus dedos tecendo padrões no ar — não foram feitos para serem contidos, mas para fluírem em harmonia com o tecido da realidade.
+
+Yuu sentiu algo despertar dentro dele, como se um código ancestral estivesse sendo executado em seu DNA.
+
+— Você me ensinaria? — as palavras escaparam antes que pudesse contê-las.
+
+Eldora sorriu, e por um momento, pareceu jovem novamente.
+
+— É por isso que os cristais me guiaram até você, jovem tecromante. Às vezes, precisamos perder tudo para encontrar quem realmente somos.
+
+Enquanto os sistemas do templo zumbiam ao redor deles como um coro digital, Yuu sentiu, pela primeira vez desde sua humilhação, que talvez houvesse um propósito maior em seu aparente fracasso. As luzes dos cristais dançavam em suas íris, não mais como símbolos de sua inadequação, mas como promessas de um novo amanhecer digital.
 
 # O Confronto no Templo e a Verdadeira Transformação
 
-As antigas paredes do Templo das Tradições tremiam com a energia arcana que saturava o ar. O cheiro de ozônio e incenso criava uma mistura intoxicante, enquanto os vitrais coloridos projetavam padrões caleidoscópicos sobre o piso de mármore polido. Alan Lancaster estava de pé no centro do círculo ritual, suas vestes surradas contrastando com a opulência do ambiente.
+O ar dentro do templo vibrava com uma frequência antiga, como se as próprias paredes guardassem memórias dos rituais milenares ali realizados. Jade avançou pelo corredor principal, seus passos ecoando contra o piso de mármore manchado pelo tempo. As velas dispostas em castiçais de bronze projetavam sombras dançantes que pareciam conspirar nos cantos do salão.
 
-— Você profana este lugar sagrado com suas teorias heréticas — a voz do Arcano Thaddeus reverberou pelo salão, seu medalhão de bronze pulsando ameaçadoramente.
+Seus olhos se fixaram na figura imponente diante do altar. O Guardião se mantinha imóvel, suas vestes cerimoniais ondulando suavemente com uma brisa inexistente. A máscara ritual que cobria seu rosto refletia a luz tremulante das chamas, criando a ilusão de expressões mutantes em sua superfície metálica.
 
-Alan manteve a postura ereta, seus olhos fixos nos símbolos arcanos que havia desenhado no chão. Cada traço era preciso, cada ângulo calculado com a mesma dedicação que aplicara em suas intermináveis noites de estudo.
+— Você não deveria estar aqui — a voz do Guardião reverberou pelo espaço, carregada de autoridade ancestral.
 
-— A verdadeira heresia — Alan respondeu, sua voz calma mascarando a tempestade interior — é negar o conhecimento por medo de mudar.
+Jade sentiu o Fragmento pulsar contra seu peito, respondendo à proximidade do poder que emanava do altar.
 
-O primeiro glifo começou a brilhar sob seus pés, não mais trêmulo como no Salão dos Titânicos, mas firme e resoluto. O segundo símbolo acendeu-se em seguida, sua luz dourada perfeitamente sincronizada com o primeiro. No terceiro, a ressonância harmônica que Alan tanto estudara finalmente se manifestou.
+— O Fragmento me trouxe até aqui — ela respondeu, sua voz firme mascarando o tremor em suas mãos — Ele tem uma consciência própria, você sabe disso.
 
-Ravenna emergiu das sombras, seus olhos galáticos ardendo com fúria contida.
+O Guardião inclinou levemente a cabeça, um gesto que poderia significar tanto curiosidade quanto desdém.
 
-— Pare imediatamente, ou enfrentará consequências além da sua compreensão.
+— O que você entende sobre consciência, criança? Sobre o peso das eras que esse templo carrega?
 
-— Não — Alan permaneceu inabalável, enquanto o quarto glifo se iluminava. — Vocês queriam evidências. Aqui estão elas.
+Jade deu um passo à frente, o Fragmento brilhando mais intensamente.
 
-O ar crepitava com potencial mágico. Os vitrais começaram a vibrar em uma frequência que fazia os dentes doerem. No centro do círculo, Alan sentia cada fibra de seu ser ressoar com a energia primordial que tanto tempo levara para compreender.
+— Entendo o suficiente para saber que manter esse poder trancado aqui é errado. O mundo está mudando. Nós precisamos mudar com ele.
 
-— A magia — ele continuou, sua voz ganhando força — não distingue entre sangue nobre e comum. Ela responde à harmonia, à ressonância, à compreensão profunda de seus padrões.
+Um riso seco escapou por trás da máscara.
 
-O último glifo se acendeu, completando a sequência. Uma onda de energia pura explodiu do círculo, não caótica como antes, mas precisamente controlada. Os Arcanos presentes foram forçados a recuar, seus próprios medalhões vibrando em resposta involuntária à demonstração.
+— Mudança? — o Guardião moveu-se com uma velocidade surpreendente, sua mão estendida emanando uma aura violácea — O que você sabe sobre mudança?
 
-— Impossível — Thaddeus sussurrou, seu rosto pálido refletindo o brilho dos símbolos.
+O ar entre eles crepitou com energia arcana. Jade sentiu o Fragmento queimar contra sua pele, sua luz azulada disputando espaço com o roxo das energias do Guardião.
 
-Alan ergueu as mãos, e a energia do círculo se moldou em formas complexas, dançando ao redor dele como uma galáxia em miniatura. Cada movimento era uma prova viva de sua teoria, cada padrão uma refutação das antigas crenças.
+— Sei que ela é inevitável — Jade plantou os pés firmemente no chão, deixando o poder do Fragmento fluir através dela — Como o amanhecer após a noite mais longa.
 
-— A verdadeira natureza da magia — Alan declarou, sua voz ecoando com autoridade recém-descoberta — não pode ser confinada por suas tradições obsoletas.
+O conflito de energias atingiu seu ápice, preenchendo o templo com um espetáculo de luz e sombra. Nas paredes, os antigos símbolos começaram a brilhar, despertados pela manifestação de poder.
 
-Ravenna deu um passo à frente, seus olhos agora fixos não com desdém, mas com uma mistura perturbadora de medo e fascínação.
+— Então mostre-me — desafiou o Guardião, sua voz agora carregada de uma emoção indefinível — Mostre-me que você compreende o verdadeiro significado da transformação.
 
-— O que você fez? — ela exigiu. — Como?
+O que se seguiu foi uma dança de luz e energia, cada movimento precisamente coreografado pelo destino. O poder do Fragmento não lutava contra o Guardião; em vez disso, ressoava com ele, criando harmonias que faziam os próprios alicerces do templo vibrarem em resposta.
 
-— Fiz o que vocês diziam ser impossível — Alan respondeu, enquanto a energia começava a se dissipar gradualmente. — Provei que a magia é universal, não um privilégio de nascença.
+Quando a última nota daquela sinfonia de poder se dissipou, Jade permanecia de pé, ofegante mas firme. O Guardião baixou lentamente sua mão, e pela primeira vez, sua postura demonstrava algo além da autoridade inflexível.
 
-O silêncio que se seguiu foi mais pesado que qualquer palavra. Os Arcanos se entreolharam, suas certezas centenárias desmoronando diante de seus olhos. Na penumbra do templo, Alan finalmente se permitiu um pequeno sorriso. Não um sorriso de triunfo, mas de validação - para si mesmo, para Mestre Blackwood, e para todos os outros que ousaram questionar o inquestionável.
+— Você não veio para tomar o poder — ele constatou, sua voz mais suave — Veio para compreendê-lo.
 
-O eco de seus passos ressoou pelo templo enquanto ele se dirigia à saída, deixando para trás um Conselho em choque e uma tradição em ruínas. A transformação que tanto buscara não era apenas sobre magia - era sobre quebrar as correntes do preconceito e abrir as portas do conhecimento para todos.
+Jade assentiu, sentindo o Fragmento se acalmar contra seu peito.
+
+— A verdadeira transformação não está no poder em si — ela respondeu, entendendo finalmente — Está em como escolhemos usá-lo.
+
+O Guardião levou as mãos à máscara, removendo-a com um movimento deliberado. O rosto por trás dela era simultaneamente jovem e antigo, marcado por uma sabedoria que transcendia o tempo.
+
+— Então você está pronta — ele disse, um sorriso enigmático se formando em seus lábios — Para aprender o que o templo realmente guarda.
+
+A luz das velas tremulou, e por um momento, as sombras nas paredes pareceram formar padrões de uma linguagem esquecida. Jade sentiu o peso da história e do destino convergindo naquele momento, entendendo que sua verdadeira jornada estava apenas começando.
